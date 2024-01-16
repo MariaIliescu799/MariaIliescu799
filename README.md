@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Maria!
+- 📫 How to reach me: mariailiescu on Discord
+- 😄 Pronouns: she/her
